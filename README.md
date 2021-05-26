@@ -1,0 +1,1 @@
+# AyuAdhePutri_NoteApp_D121181027
